@@ -1,4 +1,4 @@
-# NextVillaProject ⛪🌞🏝️🛖
+# NextVillaProject ⛪🛖🏝️
 
 ![Image](https://github.com/user-attachments/assets/f5f26c05-301d-492e-8738-730501d6f1b9)
 ![Image](https://github.com/user-attachments/assets/47726751-20aa-4d88-80aa-fc35a1f0150f)
